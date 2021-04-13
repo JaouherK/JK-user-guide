@@ -1,4 +1,4 @@
-# A User Guide To Working With Jaouher Kharrat
+# A User Guide To Working With Jaouher Kh.
 
 It is a pleasure to work with you, and I am looking forward to all the challenges we are going to face as brothers in arms. Every human personality is shaped by his past experiences which leads different views and conceptions on how we like to work.
 
