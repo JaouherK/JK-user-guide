@@ -2,7 +2,7 @@
 
 It is a pleasure to work with you, and I am looking forward to all the challenges we are going to face as brothers in arms. Every human personality is shaped by his past experiences which leads different views and conceptions on how we like to work.
 
-I read a nice article [Somewhere](https://lg.substack.com/p/the-looking-glass-a-user-guide-to) That made me decide to create this How-To manual. It creates clarity on how I work, what I value, how I look at problems, what my blind spots are, and how to build trust with you. I believe this will lead to better and clearer collaborations during our joint journey.
+I read a nice article [somewhere](https://lg.substack.com/p/the-looking-glass-a-user-guide-to) That made me decide to create this How-To manual. It creates clarity on how I work, what I value, how I look at problems, what my blind spots are, and how to build trust with you. I believe this will lead to better and clearer collaborations during our joint journey.
 
 ## How I view success
 - Success for me is a journey. The result and the process are both my criteria to define a successful outcome
