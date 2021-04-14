@@ -28,7 +28,7 @@ I read a nice article [somewhere](https://lg.substack.com/p/the-looking-glass-a-
 ## What gains and loses my trust
 
 - The easiest way to win my trust is to care about getting high-quality outcomes and to be transparent about what you think is going well or not well. I admire people with keen self-awareness, who are constantly looking to learn, and who admit their challenges and growth areas. I also admire people who go out of their way to ask others for feedback.
-- Another thing that builds my trust is extreme ownership of a problem. I am impressed when someone goes out of his way not just to identify a problem, but to rally the right people and processes in solving it. I love it when people use all the resources at their disposal (including me) to overcome challenges in their path. my trust is lost with those who frequently act like victims and who complain about problems and expect them to be solved by others.
+- Another thing that builds my trust is extreme ownership of a problem. I am impressed when someone goes out of his way not just to identify a problem, but to rally the right people and processes in solving it. I love it when people use all the resources at their disposal (including me) to overcome challenges in their path. My trust is lost with those who frequently act like victims and who complain about problems and expect them to be solved by others.
 - I am suspicious of those trying to sell me a narrative that everything is perfect, or that there is nothing they could have done any better.
 
 ## My strengths
@@ -40,6 +40,6 @@ I read a nice article [somewhere](https://lg.substack.com/p/the-looking-glass-a-
 - *Directness and simplicity in communication*: I am working on cutting through the noise, and closing the gap between what I want to express and what others hear. I also am working on my communication skills with people who are at different technical levels.
 
 ## How I give and receive feedback
-- I am actively looking for feedback. Please feel free to share them with me in the spot to optimize the benefit from it.
-- I try to provide feedback from my end to everyone who I deem could benefit from my advice.
+- I am actively looking for feedback. Please feel free to share them with me on the spot to optimize the benefit from it.
+- I try to provide feedback from my end to everyone who I think could benefit from my advice.
 
